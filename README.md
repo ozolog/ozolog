@@ -1,18 +1,17 @@
+<div align="center">
+		
+ ![](https://komarev.com/ghpvc/?username=gamblechance&color=ed0911&label=BUTCHERS.)
 
-<p align="center">
-  <img width="500" height="400" src= "https://github.com/user-attachments/assets/e2afc9e7-124f-4d6e-896e-54fa71c1cbd1"
-"
-
-</p>
-
+![vyghsxub_o](https://github.com/user-attachments/assets/08725e45-0019-45a1-8910-0f28929d512c)
 
 
-<p align="center">
-	draw on strawpage . sign ata
-</p>
+<div align="center">
+	
+draw on [straw.](https://snowstrippers.straw.page)   &nbsp; sign [atabook.](https://snowstrippers.atabook.org/) <br>
+dnc / ask 4 inspo.
+	<b>
 
-<p align= "center">
-dnc / ask for insp.
+ </div>
   
 
   
