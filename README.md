@@ -10,7 +10,7 @@
 <div align="center">
 	
 draw on [straw.](https://snowstrippers.straw.page)   &nbsp; sign [atabook.](https://snowstrippers.atabook.org/) <br>
-dnc / ask 4 inspo.
+dnc  / ask 4 inspo.
 	<b>
 
 </div>
