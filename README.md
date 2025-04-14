@@ -14,6 +14,10 @@ draw on [straw.](https://snowstrippers.straw.page)   &nbsp; sign [atabook.](http
 dnc  / ask 4 inspo.
 	<b>
 
+<div align="center" 
+	
+![ezgif-162c8afa096a08](https://github.com/user-attachments/assets/65f64593-c27b-415f-a9a8-3101d8176c20)
+
 </div>
 
   
