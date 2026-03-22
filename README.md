@@ -16,7 +16,7 @@ dnc  / ask 4 inspo.
 
 <div align="center" 
 	
-
+![](https://files.catbox.moe/kzevsm.gif)
 
 </div>
 
