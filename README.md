@@ -10,7 +10,7 @@
 
 <div align="center">
 	
-draw on [straw.](https://daredvil.straw.page)   &nbsp; sign [atabook.](https://snowstrippers.atabook.org/) &nbsp; [pronouns.cc](https://en.pronouns.page/@butchersvanity) <br>
+ [straw.](https://daredvil.straw.page)   &nbsp; [atabook.](https://snowstrippers.atabook.org/) &nbsp; [pronouns.cc](https://en.pronouns.page/@butchersvanity) <br>
 dnc  / ask 4 inspo.
 	<b>
 
